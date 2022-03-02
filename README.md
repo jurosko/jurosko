@@ -1,4 +1,4 @@
-👋 Hi, An online entrepreneur, WordPress enthusiast and author of articles about WordPress:
+👋 Hi, I'm an online entrepreneur, WordPress enthusiast and author of articles about WordPress:
 
 https://wp.sk
 
